@@ -1,0 +1,1 @@
+# Criticism-of-Terms-of-Service-ToS-End-User-License-Agreement-EULA-Privacy-Policy-of-Chaldal
